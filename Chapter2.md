@@ -1,6 +1,6 @@
 Um dos primeiros a utilizar o termo ficção científica, foi o criador da revista Amazing Stories, Hugo Gernsback:
 
-“ Por razão científica, eu falo sobre aquele tipo de romance de Jules Verne, H. G. Wells e Edgar Allan Poe, um romance charmoso, entrelaçado com fatos científicos e visões proféticas.[7] ”
+“ Pelas questões científicas, eu falo sobre aquele tipo de romance de Jules Verne, H. G. Wells e Edgar Allan Poe, um romance charmoso, entrelaçado com fatos científicos e visões proféticas.[7] ”
 Uma das definições mais completas foi feita por Rod Serling, criador da série Twilight Zone.
 
 “ Fantasia é o impossível tornado provável. Ficção científica é o improvável tornado possível.[8] ”
